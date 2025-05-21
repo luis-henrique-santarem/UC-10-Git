@@ -27,7 +27,7 @@
 |-----------|-------------|------------|------------|
 |     1     |  2005-2006  | Lawrence(Kansas) Chicago|  Sam retorna à caça após a morte da namorada, e descobre que Azazel tem planos para ele. |
 |     2     |  2006-2007  | Cold Oak, South Dakota | Sam morre, Dean faz pacto com demônio para trazê-lo de volta. |
-|     3     |  2007-2008  | Louisiana, Cicatrizes do inferno | Sam morre, Dean faz pacto com demônio para trazê-lo de volta. |
+|     3     |  2007-2008  | Louisiana, Cicatrizes do inferno | Os Sete Pecados Capitais são libertados; Dean vai para o Inferno. |
 |     4     |  2008-2009  | Canais do céu e inferno | Castiel aparece; anjos entram no jogo; Lilith quebra os selos do Apocalipse. |
 |     5     |  2009-2010  | Detroit, Stull Cemetery | Sam se sacrifica para prender Lúcifer no inferno. Final épico original.   |
 |     6     |  2010-2011  | Campanha dos Céus  | Samuel Winchester retorna; Castiel absorve almas do Purgatório.   |
