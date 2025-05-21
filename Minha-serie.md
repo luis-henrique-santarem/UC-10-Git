@@ -46,10 +46,11 @@
 ![Poster de Supernatural](https://play-lh.googleusercontent.com/tKFq3Xq5nZlP_NRmrGOC_pHKGNGPEhTxb0IfnKfHBHppits9kGF-4cXiEf8NHjY2jwswZJrvgXCA8OS8NZmn)
 
 ---
-**Link Oficial**
+**Links**
 
 [Onde assistir](https://www.primevideo.com/detail/0NPXH37LPCA3C0H0POB1O8YXTF/ref=atv_sr_fle_c_Tn74RA_1_1_1?sr=1-1&pageTypeIdSource=ASIN&pageTypeId=B07XJQRTX6&qid=1747854288157)
 
+[Trailer](https://www.youtube.com/watch?v=apltEQy8RzQ)
 ---
 
 ## Por que você deve assistir?
