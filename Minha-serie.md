@@ -16,10 +16,10 @@
  ---
 **Pontos fortes e fracos da série**
 - [x] Mitologia rica e diversificada
-- [x] Equilibrio entre, horror, drama e humor
+- [x] Equilibrio entre horror, drama e humor
 - [x] Trilha sonora marcante
-- [ ] Número excessivo de temporadas
-- [ ] Repetividade de enredos
+- [x] Número excessivo de temporadas
+- [x] Repetividade de enredos
 
 ---
 
