@@ -51,6 +51,8 @@
 [Onde assistir](https://www.primevideo.com/detail/0NPXH37LPCA3C0H0POB1O8YXTF/ref=atv_sr_fle_c_Tn74RA_1_1_1?sr=1-1&pageTypeIdSource=ASIN&pageTypeId=B07XJQRTX6&qid=1747854288157)
 
 [Trailer da série](https://www.youtube.com/watch?v=apltEQy8RzQ)
+
+
 ---
 
 ## Por que você deve assistir?
